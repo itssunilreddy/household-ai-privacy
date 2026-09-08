@@ -70,4 +70,4 @@ after changes are posted constitutes acceptance of the updated policy.
 ## Contact
 
 Questions about this privacy policy can be directed to:
-**[your email address here]**
+**itssunilreddy@yahoo.com**
